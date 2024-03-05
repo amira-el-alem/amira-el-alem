@@ -39,4 +39,3 @@ Here are some ideas to get you started:
 
 
 
-https://cdn3.vectorstock.com/i/1000x1000/48/37/web-developer-design-vector-5884837.jpg
